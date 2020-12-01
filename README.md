@@ -6,6 +6,9 @@ Tuesday, December 1, 2020
 
 Goal:
 > Collective
+
 > Research
+
 > Apply
+
 > 
